@@ -1,6 +1,6 @@
 changes.md
 10-querae.md
-20-loacosdan.md
+20-lacosdan.md
 30-saron.md
 40-parodus.md
 10000-names-of-querae.md

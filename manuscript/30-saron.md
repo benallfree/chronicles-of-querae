@@ -1,3 +1,5 @@
+# Saron
+
 Tomos walked through the thoroughfare and glanced at the various shops and merchants, though he had no money and nothing to sell. And nothing to buy. Tomos thought about how content he was, as if this strange town was separate from him. The people milling about, buzzing with activity, meddling their ways through busy lives. A feeling Tomos couldn't quite identify stirred within him. A feeling that, somehow, none of this was real. Or, it wasn't important. Not to Tomos, anyway. He couldn't understand why nobody else looked troubled by this feeling.
 
 "Tell me, boy," said a voice from slightly behind Tomos. It was coming from one of the merchant stands he had passed. Tomos turned around to see a man in dressed in a plain brown robe. He had no house symbol, wore no jewelry, and in those ways, seemed to stand out. The man's eyes were a piercing blue-green color that seemed to change as the angled shadows of passers-by stretched across his face and slipped off again.
